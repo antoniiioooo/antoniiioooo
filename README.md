@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @antoniiioooo, Antonio 
-- 🌱 I’m currently learning java and c/c++. 
+- 🌱 I’m currently learning java and c++. 
 - 👨‍💻 I’m looking to continue growing my coding skills. 
 - 📫 Instagram: antoniiiiooo23
 - 📧 Email: antolivera1232@gmail.com
